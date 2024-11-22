@@ -24,4 +24,4 @@ Feel free to explore my repositories and share feedback — I’m always eager t
 
 🚀 **Let’s turn data into action!**
 
-[LinkedIn Profile](https://www.linkedin.com/in/duyguseherpankalyersiz/) | 
+[LinkedIn Profile](https://www.linkedin.com/in/duyguseherpankalyersiz/)
